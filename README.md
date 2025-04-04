@@ -1,1 +1,0 @@
-# ventasEquipo2
